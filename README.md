@@ -1,5 +1,5 @@
 # 🥷🏼About Me:
-📈Data Science student at the Universitas Logistik dan Bisnis Internasional (ULBI) with a background in<br>the creative field.<br>🎨I combine analytical skills and creativity to turn data into insights that are visually engaging and easy to<br>understand. Interested in roles that integrate data, design, and user-centered solutions.
+📈Data Science student at the Universitas Logistik dan Bisnis Internasional (ULBI) with a background in the creative field.<br>🎨I combine analytical skills and creativity to turn data into insights that are visually engaging and easy to understand. Interested in roles that integrate data, design, and user-centered solutions.
 
 
 ## 👥Socials:
